@@ -15,7 +15,7 @@ gosto de jogar tênis, alem do tênis gosto de praticar outros espotes como basq
 
 emanuel.rucci@escola.pr.gov.br
 
-!{}(https://www.youtube.com/watch?v=Fgy8tjrKy1Y)
+!{ww.youtube.com/watch?v=Fgy8tjrKy1Y}()
 
 
 

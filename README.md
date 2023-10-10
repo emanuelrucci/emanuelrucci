@@ -1,21 +1,9 @@
-### BEM VINDOS AO MEU PERFIL
-Ola meu nome é Emanunel tenho 15 anos
+Oi eu sou o Emanuel Rucci ✌️
 
-Estudo no CAP dentro da UEM em Maringa, atualmente estou estudando o 1 ano do ensino médio
+[![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/emanuelrucci_1?igshid=NzZhOTFlYzFmZQ==)
+[![Twitter](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:emanuelrucci10@gmail.com)
 
-gosto de jogar tênis, alem do tênis gosto de praticar outros espotes como basquete e fazer academia
-
-### ENTRE EM CONTATO COMIGO
-
-(45) 99842 - 9036
-
-
-@emanuelrucci_1
-
-
-emanuel.rucci@escola.pr.gov.br
-
-!{ww.youtube.com/watch?v=Fgy8tjrKy1Y}()
+![Alt](![312282519_571663598032494_5387656708073978301_n](https://github.com/PaiDeFamilia2023/PaiDeFamilia2023/assets/146108466/5174aef9-8852-401f-99c0-e2394c536c0d)
 
 
 
